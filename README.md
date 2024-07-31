@@ -1,1 +1,1 @@
-These cheat sheets are used in a course at Brigham Young University. They are free for all to use.
+These cheat sheets are used in courses at Brigham Young University. Teaching assistants created them. They are free for all to use.
